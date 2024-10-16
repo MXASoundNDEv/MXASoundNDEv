@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on ApcKey25<br>🌱 I’m currently learning <br>⚡ Fun fact i'm a mechanician
+🔭 I’m currently working on new project every week<br>🌱 I’m currently learning <br>⚡ Fun fact i'm a mechanician
 
 
 ## 🌐 Socials:
